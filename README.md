@@ -1,0 +1,1 @@
+# cermak-spsejecna.cz
